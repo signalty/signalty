@@ -1,5 +1,5 @@
 ### Hi there, I'm Tyquan Smith👋
-I currently work in the the telecommunications space and have military experiance.
+I currently work in the telecommunications space and have military experience.
 
 #### Languages:
 
